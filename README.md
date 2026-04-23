@@ -1,1 +1,1 @@
-![Texto alternativo](https://files.bo3.gg/uploads/image/44547/image/webp-1561be909b604b91e404a8de9495fd7e.webp)
+![Texto alternativo](https://th.bing.com/th/id/OIP.3-4qpaAEhOTGMgRRkQDWPAHaEI?o=7rm=3&rs=1&pid=ImgDetMain&o=7&rm=3)
